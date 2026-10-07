@@ -1,1 +1,1 @@
-"vi lär oss tillsammans"
+"nu kommer konflikten"
