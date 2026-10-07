@@ -1,1 +1,2 @@
+"vi lär oss tillsammans och det går upp och ner" "varför är det så svårt"
 "nu kommer konflikten"
